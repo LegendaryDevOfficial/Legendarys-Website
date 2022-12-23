@@ -1,9 +1,3 @@
-layout: page
-
-title: "Home"
-
-permalink: /home
-
 Hi, i'm Legendary
 
 A not too popular YouTuber doing YouTube for fun.
