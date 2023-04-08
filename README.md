@@ -1,17 +1,7 @@
-Hi, i'm Legendary
+Legendary SMP
 
-A not too popular YouTuber doing YouTube for fun.
+the discord: discord.gg/futt
 
-You can find me on [TikTok](https://tiktok.com/@legendaryisreal), [Twitter](https://twitter.com/LegendaryIsReal)
+The BEST SMP
 
-Q&A:
-
-Q: Why is the website showing as dangerous?
-
-A: The websites shows as dangerous because your browser thinks the github certificate is invalid.
-
--------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-
-Q: Why is your name Legendary?
-
-A: To be honest, I don't know. I just came up with it one day
+the rules: No griefing, no hax, no NSFW.
